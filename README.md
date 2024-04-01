@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Raven- But I prefer Ray!
+- 👀 I’m interested in pony town, gacha, etc!
+- 🌱 I’m currently a training actor!
+- 💞️ I’m looking to collaborate on pony town events, isalnd building, etc!
+- 📫 How to reach me, just check the links on my profile!
+- 😄 Pronouns: Any pronouns/All
+- ⚡ Fun fact: I'm lesbian!
